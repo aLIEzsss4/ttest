@@ -1,1 +1,1 @@
-# [index](https://github.com/aLIEzsss4/ttest)
+# [index](https://aliezsss4.github.io/ttest/)
